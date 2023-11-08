@@ -13,13 +13,9 @@ A core requirement for collaboration is establishing a sincere, genuine connecti
 ## How I View Success
 
 ## How I Communicate
-My personal ethos involves always assuming positive intent when communicating with someone, regardless of communcation medium. When reading messages sent over slack or email, things like tone, voice, and subtext can and will get lost. 
+My personal ethos involves always assuming positive intent when communicating with someone, regardless of communcation medium. When reading messages sent over slack or email, things like tone, voice, and subtext can and will get lost. I know that I have to work extra hard when communicating over text to ensure that I am not accidentally allowing my unconscious biases to stop me from assuming positive intent because there are so many ways to read one sentence. 
 
-## Things I Do that May Annoy You
-
-## What Gains My Trust
-
-## What Loses My Trust
+For example, the phrase "I never said I love you" has six different meanings depending on which word in the sentence you emphasize. This is why I strive to make myself available to explain anything that I send over text, whether in a slack message or email, if needed. I do my best to also ask for clarification as needed on my end. My initial reaction will always be to look past any initial negative reaction to reading something and give the benefit of the doubt and try to glean more information to ensure that I am not misinterpreting someone or misrepresenting their words. 
 
 ## My Strengths
 
